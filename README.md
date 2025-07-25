@@ -18,6 +18,8 @@
 به‌زودی لینک نمونه‌کارها، پروژه‌ها و موزیک‌ها قرار می‌گیرد.
 
 ## 📫 ارتباط با من:
-- [اینستاگرام](https://instagram.com/yourprofile)
-- [ایمیل](mailto:youremail@gmail.com)
-- [تلگرام](https://t.me/yourtelegram)
+- [اینستاگرام](https://www.instagram.com/rezashajarat?igsh=MW10bHg0OGIzZmZrYQ==)
+- [ایمیل](shajaratreza@gmail.com)
+- [تلگرام]
+  [@rezashajarat
+https://t.me/rezashajarat69]
